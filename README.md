@@ -43,7 +43,7 @@ I’m lwk too lazy to sign up for toyhouse or post anywhere lol.. I might at som
 
 ! Drawing ! Writing ! Sleeping ! Repeat !
 
-DISCORD !! spwinkleblumi
+DISCORD !! spwinklebluemi
 
 
 
